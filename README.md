@@ -4,8 +4,6 @@ To the people of Floptropica, do you want your own bank FILLED with Jiafeicoins?
 *JFC = Jiafeicoins*
 
 How to get Jiafeicoins:
-Watch Floptoks, Flopshorts, Flopreels, Flopchats and more flop videos. (+1 JFC)
-
-Listen to Cupcakke/Jiafei/Deja El Bullying/Pon Mi Remixes (+1 JFC per "artist")
+Watch Floptoks, or listen to Cupcakke/Jiafei remixes.
 
 Enjoy!
