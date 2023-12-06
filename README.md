@@ -1,4 +1,4 @@
-# Floptropica Bank v0.0
+# Floptropica Bank v1.0
 To the people of Floptropica, do you want your own bank FILLED with Jiafeicoins? Well, here you are, with Floptropica bank!
 
 *JFC = Jiafeicoins*
